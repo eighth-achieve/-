@@ -3,7 +3,7 @@
 #### 介绍
 以康雍两朝为主，包括历史档案、现代研究、小说杂谈和数据库等。 点击对应标题即可下载或跳转。
 
-#### [档案资料](https://pan.baidu.com/s/1tyEn34-x2A2UL7NjU-mJTQ?pwd=xbbl)
+#### [档案资料](https://pan.baidu.com/s/1PTTv4uVm4vi66kW5l3AOfA?pwd=6o85 )
 1. 朱批奏折
 
 - 康熙朝满文朱批奏折全译（1-4）
